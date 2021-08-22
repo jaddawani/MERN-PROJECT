@@ -85,7 +85,6 @@ Main Functions
 
 ## Contact us on :
 
-###### :small_red_triangle_down: **Mobile number** 0599926313 :iphone:
+###### :small_red_triangle_down: **Mobile number** 0598656681 :iphone:
 
-###### :small_red_triangle_down: **Mobile number** 0592333134 :iphone:
-###### :small_red_triangle_down: **Phone**       02-2950000    :telephone:
+
